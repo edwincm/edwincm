@@ -12,6 +12,6 @@ Here are some ideas to get you started:
 -->
 
 - 🔭 I’m currently pursuing my Master of Technology in Computer Science and Engineering
-- 📫 How to reach me: edwinmathew316@gmail.com
+- 📫 How to reach me: charlymk56@gmail.com / edwinmathew316@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I am introvert who loves socialising
+- ⚡ Fun fact: I am an introvert who loves socialising
